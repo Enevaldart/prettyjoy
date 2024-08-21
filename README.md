@@ -1,1 +1,1 @@
-A template for you lady
+A template for your lady
